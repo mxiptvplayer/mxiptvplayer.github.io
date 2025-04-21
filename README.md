@@ -1,1 +1,1 @@
-# mxiptvplayer.github.io
+# mxiptvplayer.github.io - privacy policy
